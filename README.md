@@ -1,6 +1,10 @@
 
 <div align="center"/>
 
-https://github.com/user-attachments/assets/8d1490e4-89bb-4426-a807-afb023215a2a
+
+i like to resonate with varka and phainon u get it
+
+https://github.com/user-attachments/assets/018b750f-69f7-4c1b-8e14-4bafcc561ac2
+
 
 
