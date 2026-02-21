@@ -2,9 +2,14 @@
 <div align="center"/>
 
 
-i like to resonate with varka and phainon u get it
+no one looks at this acc, i barely use it - so i leave this here, so i can come back once in a while 
+and i feel nostalgic. last updated 21st feb 2026
 
-https://github.com/user-attachments/assets/018b750f-69f7-4c1b-8e14-4bafcc561ac2
+
+
+
+https://github.com/user-attachments/assets/bc37435d-c3cf-4533-8cbd-00ccbba93deb
+
 
 
 
