@@ -3,7 +3,8 @@
 
 
 no one looks at this acc, i barely use it - so i leave this here, so i can come back once in a while 
-and i feel nostalgic. last updated 21st feb 2026
+
+last updated 21st feb 2026
 
 
 
