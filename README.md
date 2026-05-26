@@ -1,6 +1,8 @@
 
 <div align="center"/>
 
+it gets better.
+
 last updated 26th may 2026
 
 
