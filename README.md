@@ -1,9 +1,9 @@
 
 <div align="center"/>
 
-it gets better.
+im still hurting, but it gets better eventually. i dont feel like it will ever leave me 
 
-last updated 26th may 2026
+last updated 4th august 2026
 
 
 
