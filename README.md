@@ -1,9 +1,9 @@
 
 <div align="center"/>
 
-im still hurting, but it gets better eventually. i dont feel like it will ever leave me 
+i dont think much about all of this anymore. yet it still hurts. i think after two years im making peace with it
 
-last updated 4th august 2026
+last updated 4th october 2026
 
 
 
